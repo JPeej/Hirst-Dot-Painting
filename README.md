@@ -1,1 +1,0 @@
-# Hirst-Dot-Painting
